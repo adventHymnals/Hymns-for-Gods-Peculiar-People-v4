@@ -1,0 +1,26 @@
+
+## 51.  Holy Rest
+[edit](https://docs.google.com/document/d/1fFI8ewn6_HcAfQZbzvadLNhO%2Dkq91tNh/edit?mode=html)
+
+
+
+    1. Sweet is the work, my God, my King,
+    To praise thy name, give thanks, and sing!
+    To show thy love by morning light,
+    And talk of all thy truth by night.
+
+    2. Sweet is the day of sacred rest;
+    No mortal cares shall seize my breast;
+
+    0 may my heart in tune be found,
+    Like David's harp of solemn sound!
+
+    3. When grace has purified my heart,
+    Then I shall share a glorious part;
+    And fresh supplies of joy are shed,
+    Like holy oil, to cheer my head.
+
+    4. Then shall I see, and hear, and know,
+    All I desir'd or wish'd below;
+    And every hour find sweet employ,
+    In that eternal world of joy.

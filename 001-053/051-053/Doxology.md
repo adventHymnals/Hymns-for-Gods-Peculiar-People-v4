@@ -1,0 +1,11 @@
+
+## 53.  Doxology
+[edit](https://docs.google.com/document/d/1fCn6hBR6YvA%2DhcP0Ik09VyLhqJ2ni%2DTl/edit?mode=html)
+
+
+
+    Praise God from Whom all blessings flow;
+    Praise Him all creatures here below;
+    Praise Him, above, ye heavenly host;
+    Praise Father, Son and Holy Ghost.
+    AMEN!

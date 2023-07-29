@@ -1,0 +1,21 @@
+
+## 38.  I Cannot Go Back
+[edit](https://docs.google.com/document/d/1eG9BZzOxlONh%2DFxIfVunHZQajsX6ATcp/edit?mode=html)
+
+
+
+    1. For Canaan I've started, and on I must go,
+    Till all the bright glories of Eden I know;
+    I've made no reserve, and I'm sure I'll not lack,
+    While onward I journey and do not draw back.
+
+    2 My soul is enkindled with rapture and love,
+
+    1 fain would ascend to my Jesus above;
+    But nay, I must follow in his humble track,
+    And prove my obedience by not drawing back.
+
+    3. Then on let us press, for Jesus is near,
+    And strengthen each other with words of good cheer;
+    With zeal ever buoyant and courage ne'er slack,
+    Let's be true to our King and never draw back.

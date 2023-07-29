@@ -1,0 +1,31 @@
+
+## 48.  The Coming Glory
+[edit](https://docs.google.com/document/d/1g%2DEOXaaFj6YiIUqGAIM5oyEDfp6sQ8Ud/edit?mode=html)
+
+
+
+    1. I'm glad I know that Christ shall reign
+    In glory, glory, glory;
+    And come to earth in clouds again,
+    In glory, glory, glory;
+    'Tis glory's fortaste makes me sing,
+    Of glory, glory, glory;
+    And to my Saviour praises bringSing glory, glory, glory.
+
+    2. I hope to see Him on the throne
+    In glory, glory, glory;
+    When He shall come to claim his own,
+    In glory, glory, glory;
+    I'll sing while mounting through the air,
+    Of glory, glory, glory;
+    To meet my Father's children there,
+    In glory, glory, glory;
+
+    3. Come on, dear friends, let's mend our pace,
+    To glory, glory, glory;
+    We soon shall see Him face to face,
+    In glory, glory, glory.
+    The Bride shall reign, the Bridegroom too,
+    In glory, glory, glory;
+    Let's keep the blessed prize in view,
+    'Tis glory, glory, glory.

@@ -1,0 +1,31 @@
+
+## 42.  'Rejoice! Rejoice!'
+[edit](https://docs.google.com/document/d/1fx68AgI%2DlI84oUhC0KyIBomGZnka8tR6/edit?mode=html)
+
+
+
+    1. Rejoice, rejoice, the promis'd time is coming,
+    Rejoice, rejoice, the wilderness shall bloom;
+    And Zion's children then shall sing,
+    The deserts all are blossoming.
+    Rejoice, rejoice, the promis'd time is coming,
+    Rejoice, rejoice, the wilderness shall bloom;
+    King Jesus' banner wide unfurl'd,
+    Shall wave in triumph o'er the world,
+    And every Christian bond or free,
+    Shall hail the glorious jubilee.
+    Rejoice, rejoice, the promis'd time is coming,
+    Rejoice, rejoice, the wilderness shall bloom.
+
+    2. Rejoice, rejoice, the promis'd time is coming,
+    Rejoice, rejoice, the “PRINCE OF PEACE” shall reign;
+    And lambs may with the leopard play,
+    For nought shall harm in Zion's way.
+    Rejoice, rejoice, the promis'd time is coming.
+    Rejoice, rejoice, the “PRINCE OF PEACE” shall reign
+    The sword and spear of needless worth,
+    Shall find no place in the new earth,
+    For Peace shall smile from shore to shore,
+    And nations shall learn war no more.
+    Rejoice, rejoice, the promis'd time is coming,
+    Rejoice, rejoice, the “PRINCE of PEACE” shall reign.

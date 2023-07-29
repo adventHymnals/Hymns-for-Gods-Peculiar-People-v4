@@ -1,0 +1,35 @@
+
+## 17.  The Chariot
+[edit](https://docs.google.com/document/d/1d7cd0h3%2DZuFE0uL%2DHHT_q8ruj4TD7t9t/edit?mode=html)
+
+
+
+    1. The chariot! The chariot! Its wheels roll in fire,
+    As the Lord cometh down in the pomp of His ireLo, self moving it drives on its pathway of cloud,
+    And the heavens with the burden of Godhead are bow'd.
+
+    2. The glory, the glory around him are pour'd,
+    Mighty hosts of the angels that wait on the Lord;
+    And the glorified saints and the martyrs are there,
+    And there all who the palm—wreaths of victory wear.
+
+    3. The trumpet! The trumpet! The dead have all heard
+    Lo, the depths o
+
+    1' the stone—cover'd charnel are stirr'd!
+    From the sea, from the earth, from the south, from the north,
+    All the vast generations of men are cone forth.
+
+    4. The judgement! The judgement! The thrones are all set,
+    Where the Lamb and the white vested elders are met;
+    There all flesh is at once in the sight of the Lord,
+    And the doom of eternity hangs on his word.
+
+    5. 
+
+    0 mercy! 
+
+    0 mercy! Look down from above;
+    Great Creator, on us, thy sad children with love;
+    When beneath to their darkness the wicked are driven,
+    May the justified saints find a ransom in heaven.
